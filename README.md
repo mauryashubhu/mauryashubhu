@@ -39,9 +39,10 @@ I'm looking to collaborate on:
 
 📫 How to Reach Me
 
-· Email: [Your Email]
-· LinkedIn: [Your LinkedIn Profile URL]
-· Portfolio: [Your Portfolio/Blog URL]
+· Email: gyanrajmaurya@gmail.com
+· LinkedIn:
+https://www.linkedin.com/in/shubham-m-b00928144?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
 
 ---
 
